@@ -3,7 +3,7 @@
 ## Chapter 1: Characters
 
 Our story begins with...
-
+Princess Peach, Browser and Mario
 
 ## Chapter 2: Quest
 
