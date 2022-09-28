@@ -6,7 +6,7 @@ Our story begins with...
 
 
 ## Chapter 2: Quest
-
+To save Princess Peach from Bowser 
 
 ## Chapter 3: Hardship
 
