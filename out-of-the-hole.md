@@ -11,7 +11,7 @@ Princess Peach, Browser and Mario
 ## Chapter 3: Hardship
 
 
-## Chapter 4: Recovery
+## Chapter 4: peach and mario recover from mushroom bite
 
 
 ## Chapter 5: Happily ever after
