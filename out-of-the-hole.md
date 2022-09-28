@@ -6,7 +6,7 @@ Our story begins with...
 Princess Peach, Browser and Mario
 
 ## Chapter 2: Quest
-
+To save Princess Peach from Bowser 
 
 ## Chapter 3: Hardship
 
