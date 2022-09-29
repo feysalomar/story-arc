@@ -9,6 +9,7 @@ Princess Peach, Browser and Mario
 To save Princess Peach from Bowser 
 
 ## Chapter 3: Hardship
+Mario gets bitten by a mushroom trying to save peach 
 
 
 ## Chapter 4: princess peach and mario recover from mushroom bite
