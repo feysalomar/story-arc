@@ -9,6 +9,7 @@ Our story begins with...
 
 
 ## Chapter 3: Hardship
+Mario gets bitten by a mushroom trying to save peach 
 
 
 ## Chapter 4: Recovery
